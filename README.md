@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Ritika Jha
-- 👀 I’m I’m interested in Instructional Design, E-Learning Development, Content Writing, and Collaboration with cross-functional teams
+- 👀 I’m interested in Instructional Design, E-Learning Development, Content Writing, and Collaboration with cross-functional teams
  to create impactful solutions.
 - 🌱 I’m currently learning emerging trends in e-learning technologies.
 - 💞️ I’m looking to collaborate on projects related to content writing, instructional design and e-learning development.
